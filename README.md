@@ -1,2 +1,3 @@
 # hello-world
 Hi my name is Louise I'm 15 years old and I would like to learn coding from this site because I want to expand my learnings about codings and stuff so I can create something new.
+I'm a young entrepreneur, I like creating new ideas and stuff. I would love to work with a great coders and learn something new from them. I'm still on highschool, a grade 10 student and I do play basketball as a hobby. My favorite color is blue, I like pizza and fries, I don't romance I'm a serious type of person when I'm at school. I don't have a lot of friends, just a few to motivate me from what I want in life which is great. I choose coding becasue I want to learn how to make something useful and creative for people to use in the future.
